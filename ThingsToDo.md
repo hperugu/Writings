@@ -9,7 +9,9 @@
 * Resume biking
 * Writing atleast 12 medium posts
 * Writing another 50 Quora posts
-* Setup a rig for Ethereum
+* Setup a rig for Ethereum/Monero
 * Continue staking
 * Complete one full drawing
+* Create a dAPP to track monthly expenses
+* Get a gig in Blockchain Technology
 * 
