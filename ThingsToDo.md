@@ -14,4 +14,5 @@
 * Complete one full drawing
 * Create a dAPP to track monthly expenses
 * Get a gig in Blockchain Technology
+* Started investing in yield farming
 * 
