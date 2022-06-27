@@ -17,4 +17,5 @@
 * Create a dAPP to track monthly expenses -- Need to resume
 * Get a gig in Blockchain Technology -- Is it possible?
 * Started investing in yield farming -- Not so lucrative
-* 
+* Podcasting
+* Turkey Visit
