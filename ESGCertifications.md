@@ -1,4 +1,4 @@
-There is a new sheriff in town--ESG. Nobody knows what he is capable of -but every on eacknowledges him. This is i=not the first time  environment, cliamte change , or sustianability -- the different incarnations  of   chimera  aka good samartian  appeared in teh corporate sector. This time it came as acronym of its friends-- which do not exactly belong to them but differnet persepctivaes of the same good deeds. 
+There is a new sheriff in town--ESG. Nobody knows what he is capable of -but every on eacknowledges him. This is not the first time  environment, cliamte change , or sustianability -- the different incarnations  of   chimera  aka good samartian  appeared in teh corporate sector. This time it came as acronym of its friends-- which do not exactly belong to them but differnet persepctivaes of the same good deeds. 
 
 Unfortunately, ESG creates a feeling that it belongs to non-profit orgnization than for-profit business orgnizations. Because a lot of pressure from different stakeholders and governmental agencies, corporate leaders are forceflly turning their heads towards this sign.
 
