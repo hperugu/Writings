@@ -26,8 +26,7 @@ https://www.sasb.org/fsa/level-i-exam/
 Intgrated Reporting
 https://www.integratedreporting.org/ir-training-programme/online-ir-training-courses/
 
-
 TCFD
-
 https://www.fsb-tcfd.org/recommendations/
 
+There are  variety of reasons why any company to pursue ESG goals. From investor point of view to employee to CEO?board each oen of them ahve theri own priorities.  because the data comes from different sources and they have different duties to pursue. 
